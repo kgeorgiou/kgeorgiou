@@ -1,1 +1,1 @@
-😍 Open (Source|Web|Data|Standards)
+Open (Source|Web|Data|Standards)
